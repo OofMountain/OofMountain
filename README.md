@@ -1,1 +1,1 @@
-Hello, I use this account for personal projects only.
+This account is used only for personal projects.
